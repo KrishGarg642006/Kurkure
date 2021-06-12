@@ -1,0 +1,1 @@
+Rice meal, Edible vegetable oil, corn meal, gram meal, **Spices and Condiments (Onion powder, Chilli powder, Amchur, Coriander seed powder, Ginger powder, Garlic powder, Black pepper powder, Turmeric powder, Spices extracts, Fenugreek Leaf powder), Salt, Black Salt, Tomato Powder, Sugar, Citric Acid, Tartaric Acid.
